@@ -7,7 +7,7 @@
 
 - 📝 I write AI ML articles on [https://medium.com/@ritzx21](https://medium.com/@ritzx21)
 
-- 📫 How to reach me **https://www.linkedin.com/in/ritika-chatterjee-7bab94247/**
+- 📫 How to reach me **www.linkedin.com/in/ritika-chatterjee21**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
